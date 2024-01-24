@@ -1,1 +1,1 @@
-Student at HiMolde, currently taking a bachelor's degree in IT and digitalization. 
+Student at HiMolde, currently taking a bachelor degree in IT and digitalization. 
